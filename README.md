@@ -7,10 +7,6 @@
 
 非原版：
 
-Glgoo：http://www.glgoo.com/
-
-九尾搜索：http://www.jwss.com/
-
 谷粉搜搜：http://www.gfsswy.com/
 
 谷粉搜搜：http://gufensoso.com/
