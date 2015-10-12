@@ -7,8 +7,6 @@
 
 非原版：
 
-谷粉搜搜：http://www.gfsswy.com/
-
 谷粉搜搜：http://gufensoso.com/
 
 谷粉恰搜：http://www.qiasou.com/
